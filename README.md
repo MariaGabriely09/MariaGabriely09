@@ -13,5 +13,5 @@ Meu nome é Maria gabriely
 - 
 - @dixx.maah.xx
 - 
-!{}(https://media1.tenor.com/m/fXfaqPLEnWIAAAAd/escorregando-yuri-alberto.gif)
+![escorregando-yuri-alberto](https://github.com/user-attachments/assets/7158fdf0-8da7-419e-9c8c-27d452620318)
   
