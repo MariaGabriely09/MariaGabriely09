@@ -6,6 +6,11 @@ Meu nome é Maria gabriely
 - Estou me desenvolvendo na linguagem JavasScript.
 - Ultilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos.
 - 🖤
+- 
 - ### Você pode entrar em contato comigo 🎈
+- 
 - eleoterio.sousa@escola.pr.gov.br
+- 
 - @dixx.maah.xx
+!{}(https://media1.tenor.com/m/fXfaqPLEnWIAAAAd/escorregando-yuri-alberto.gif)
+  
